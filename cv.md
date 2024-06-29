@@ -2,4 +2,4 @@
 
 ## Contacts
 
-Telefram: @leramana
+Telegram: @leramana
